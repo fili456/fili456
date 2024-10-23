@@ -6,5 +6,4 @@ bem vindo ao meu perfil 🖤 ✨✨✨✨✨✨
 - 💬 o que e a vida
 - ⚡ eu sou engraçado
   
-![]()
-https://media.tenor.com/TQ1BS7DXaIoAAAAi/rengoku.gif
+![](https://media.tenor.com/TQ1BS7DXaIoAAAAi/rengoku.gi)
